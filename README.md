@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @notCyrushelp
+- 👀 I’m interested in learning how to code esp's for games
+- 🌱 I’m currently learning nothing :(
+- 💞️ I’m looking to collaborate on esp products
+- 📫 How to reach me Discord ( notCyrus#0001 )
